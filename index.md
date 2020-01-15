@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Welcome to the International Customers Team homepage!
 
-I'm glad you are here. I plan to talk about ...
+
+Can't wait to post my images here...
